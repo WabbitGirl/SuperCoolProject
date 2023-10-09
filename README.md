@@ -14,5 +14,5 @@ Pro tips for getting an A in Dr.Cerny's class.
 =======
 Guys im having second thoughts, this might not be as cool as I thought.
 
-Mark Fuller
+Danielle Boswell
 >>>>>>> 345bf233b1b0c04b91a3a3ff3be15a62408c30b5
